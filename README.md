@@ -1,2 +1,2 @@
 # discord-Clone
-welcome to Discord-Clone, ini hanya latihan belaka jadi ENJOY :)
+Welcome To school-Mrs.Puff

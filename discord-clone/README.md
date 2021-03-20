@@ -1,1 +1,1 @@
-Welcome to discord-Clone
+Enjoy to the study
