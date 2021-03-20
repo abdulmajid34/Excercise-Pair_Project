@@ -1,2 +1,2 @@
 # discord-Clone
-welcome to Discord-Clone, ini hanya latihan belaka jadi ENJOY
+welcome to Discord-Clone, ini hanya latihan belaka jadi ENJOY :)
